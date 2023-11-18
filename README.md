@@ -396,9 +396,8 @@ p站 https://suo.yt/WMQzouS
 
 ![1 (17)](https://github.com/qfgz85223/loveyun/assets/119500528/805bf340-c2ba-4b14-9d25-2f375171a341)
 
+![1](https://github.com/qfgz85223/loveyun/assets/119500528/02567601-0e4e-44e3-9543-5686f01bc656)
 
-
-https://github.com/qfgz85223/loveyun/assets/119500528/2be4f5e1-9320-40ed-8aa4-9dd2cdd3e905
 
 ![必备](https://github.com/qfgz85223/loveyun/assets/119500528/c43b7c4b-919b-4bc9-97fd-2fcfefcdaad6)
 
